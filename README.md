@@ -23,10 +23,10 @@
 <img src="https://64.media.tumblr.com/1049811c8fe338af1ae95bbeb439c65a/c0bf2a03c82c8f9c-99/s75x75_c1/624527081a882900efc1d082d568abd3f3851bb3.gifv">
 
   <p align="center">
-  she / any 
+any  pronouns
 
 <p align="center">
 <img src="https://pixels.crd.co/assets/images/gallery02/18f9b089.gif?v=29416114">
   
   <p align="center">
- dark/proshippers dni
+ dark/proshippers dni / hazbin hotel fandom iwecuf
