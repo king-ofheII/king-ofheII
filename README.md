@@ -17,7 +17,7 @@
 <img src="https://64.media.tumblr.com/8e397fab9a41e1f00016917a0867e1b2/408b2d36fe8fb6b1-57/s75x75_c1/fcdca19e3d06e95932570fcb1f7d99a8639cacdd.gifv">
 
 <p align="center">
-13 (turning 14) 
+14 
 
 <p align="center">
 <img src="https://64.media.tumblr.com/1049811c8fe338af1ae95bbeb439c65a/c0bf2a03c82c8f9c-99/s75x75_c1/624527081a882900efc1d082d568abd3f3851bb3.gifv">
